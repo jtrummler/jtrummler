@@ -1,4 +1,4 @@
-🏫 University of Florida + University of Pennsylvania
+🏫 University of Florida + University of Pennsylvania \n
 🔗 Check my portfolio at [jtrummler.xyz](jtrummler.xyz)
 
 
