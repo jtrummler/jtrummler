@@ -1,6 +1,6 @@
 🏫 University of Florida + University of Pennsylvania
 
-🔗 Check my portfolio at [jtrummler.xyz](www.jtrummler.xyz)
+🔗 Check my portfolio at [jtrummler.xyz](https://jtrummler.xyz)
 
 
 
