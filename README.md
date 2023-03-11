@@ -1,3 +1,4 @@
+👨‍🎓 University of Florida alum  
 🏫 University of Pennsylvania Master of Urban Spatial Analytics '23  
 🔗 Check my portfolio at [jtrummler.xyz](https://jtrummler.xyz)
 
