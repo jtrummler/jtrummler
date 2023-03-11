@@ -1,5 +1,4 @@
-👨‍🎓 University of Florida alum  
-🏫 University of Pennsylvania Master of Urban Spatial Analytics '23  
+👨‍🎓 University of Florida alum (BSSBE) + University of Pennsylvania '23 (MUSA)  
 🔗 Check my portfolio at [jtrummler.xyz](https://jtrummler.xyz)
 
 
