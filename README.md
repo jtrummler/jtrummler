@@ -1,6 +1,8 @@
 👨‍🎓 University of Florida '22 (BSSBE) + University of Pennsylvania '23 (MUSA)  
-🌟 Passionate about geospatial data analytics for sustainable + resilient communities  
-🔗 Check my portfolio at [jtrummler.xyz](https://jtrummler.xyz)
+🌟 Passionate about **geospatial analysis** for **sustainable + resilient communities**    
+🔗 Policy and Data Analyst @ **Defender Association of Philadelphia**  
+🏙️ Geospatial Consultant @ **World Bank**'s City Resilience Program  
+✔️ Check my portfolio at **[jtrummler.xyz](https://jtrummler.xyz)**  
 
 
 
