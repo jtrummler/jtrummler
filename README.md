@@ -1,5 +1,5 @@
 👨‍🎓 University of Florida '22 (BSSBE) + University of Pennsylvania '23 (MUSA)  
-🌟 Passionate about **geospatial analysis** for **sustainable + resilient communities**    
+🌟 Urban planning, public policy, and geospatial analysis for **sustainable + resilient communities** and **urban justice**  
 🔗 Policy and Data Analyst @ **Defender Association of Philadelphia**  
 🏙️ Geospatial Consultant @ **World Bank's City Resilience Program**  
 ✔️ Check my portfolio at **[jtrummler.xyz](https://jtrummler.xyz)**  
